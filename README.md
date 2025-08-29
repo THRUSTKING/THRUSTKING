@@ -77,32 +77,20 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
   <img src="https://github.com/user-attachments/assets/5962119e-ab57-4743-992d-5f2883211a0f?raw=true" alt="Sublime's custom image"/>   <img src="https://github.com/user-attachments/assets/2e861f7c-83b2-42bb-937a-f07bcf3637c9?raw=true" alt="Sublime's custom image"/>
 </p>
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/b1f95ebd-f13d-4781-8a72-269d598ab485?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/55bafc48-b841-4b98-8de8-418cc53f6d5e?raw=true" alt="Sublime's custom image"/>
+</p>
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/9b834fc3-76bb-4cb2-b459-4a05e35c63b2?raw=true" alt="Sublime's custom image"/>
+</p>
 
 
 
 
 
  
-
-
-
 
 
 

@@ -1,7 +1,7 @@
 <h1 align="center"> 🍎 sweet tooth, for you, my honeydew ⭐️ </h1>
 <p align="center">
 ⋆˙🥧   RORY  ! ! ! 🍎<br/>
-she/he, bigender+bisexual, 4/11, ENG+white ⋆ ☘︎<br/>
+20 yrs, she/he, bigender+bisexual, 4/11, ENG+white ⋆ ☘︎<br/>
   <p align="center">
 🟢 online - feel free to int!<br/>
 🌙 away - off tab/afk/not really paying attention, whisp to int<br/>

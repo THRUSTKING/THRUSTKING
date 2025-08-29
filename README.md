@@ -86,14 +86,7 @@ TRIGGERS: bugs, spiders, disturbing imagery, gore, any kind of abuse
   <img src="https://github.com/user-attachments/assets/9b834fc3-76bb-4cb2-b459-4a05e35c63b2?raw=true" alt="Sublime's custom image"/>
 </p>
 
-
-
-
-
- 
-
-
-
-
-
-
+my links !
+    
+ [my strawpage](https://roaray.straw.page/) • [pronouns cc](https://pronouns.cc/@munchies) • [atabook](https://roryobannon.atabook.org/) • [twitter](https://x.com/THRUSTKlNG) • [tiktok](https://www.tiktok.com/@thrustklng) • [tumblr](https://thrustklng.tumblr.com/) • [pinterest](https://pin.it/4HXEO9J8d) • [instagram](https://www.instagram.com/boogerzombie) • [roblox](https://www.roblox.com/users/76989654/profile) • [listography](https://listography.com/3675021528
+)

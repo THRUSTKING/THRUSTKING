@@ -15,12 +15,12 @@ I normally play on the 18+ server and hangout in whichever fandom spot i'm fixat
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
 gravity falls, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
 
-![tumblr_01582727cf77bc0fb59dff42a272865e_82601a28_250](https://github.com/user-attachments/assets/19ef1461-aa2b-4dff-9913-605cecbaf323) ![tumblr_f41a323ebaabe205caf2322bbf9b1bc6_d96698ed_250](https://github.com/user-attachments/assets/653c1334-6c48-42d3-ac84-cb83d8e86643) ![tumblr_8974c6fd6b1a9c477b152759b80e104a_bfe47860_250](https://github.com/user-attachments/assets/ab4a0d3d-1d66-4ba3-bf01-da171de6f0ee) ![tumblr_500d7296818aadc7e77f31a879098d61_48f32ca2_250](https://github.com/user-attachments/assets/803c6f0d-ec5e-46ac-a062-41e6d66f0312) ![tumblr_96bf653a51816316731bbd6153bd5094_2e9a73d1_250](https://github.com/user-attachments/assets/b6038324-550d-408c-afc2-1fd4ce988b06)
 
 
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/19ef1461-aa2b-4dff-9913-605cecbaf323?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/653c1334-6c48-42d3-ac84-cb83d8e86643?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/ab4a0d3d-1d66-4ba3-bf01-da171de6f0ee?raw=true" alt="Sublime's custom image"/>   <img src="https://github.com/user-attachments/assets/803c6f0d-ec5e-46ac-a062-41e6d66f0312?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/b6038324-550d-408c-afc2-1fd4ce988b06?raw=true" alt="Sublime's custom image"/>
 
-
-
+</p>
 
   <p align="center">
   ════════════════════════════════════════════════════════════════════════<br/>

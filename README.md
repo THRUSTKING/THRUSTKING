@@ -14,8 +14,8 @@ I normally play on the 18+ server and hangout in whichever fandom spot i'm fixat
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
 gravity falls, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
-
-
+      <p align="center">
+  <img src="https://github.com/user-attachments/assets/2ba6ebb1-bbe5-471b-b401-0a2aea120926" alt="Sublime's custom image"/>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/19ef1461-aa2b-4dff-9913-605cecbaf323?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/653c1334-6c48-42d3-ac84-cb83d8e86643?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/ab4a0d3d-1d66-4ba3-bf01-da171de6f0ee?raw=true" alt="Sublime's custom image"/>   <img src="https://github.com/user-attachments/assets/803c6f0d-ec5e-46ac-a062-41e6d66f0312?raw=true" alt="Sublime's custom image"/> <img src="https://github.com/user-attachments/assets/b6038324-550d-408c-afc2-1fd4ce988b06?raw=true" alt="Sublime's custom image"/>

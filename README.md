@@ -13,7 +13,7 @@ I normally play on the 18+ server and hangout in whichever fandom spot i'm fixat
 
   <p align="center">
 🐞 SOME OF MY INTERESTS! ✶⋆.˚ <br/>
-gravity falls, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
+gravity falls, ghostbusters, forsaken, fnaf, the quarry, eddsworld, DC, marvel, tloz, overwatch, MLP, LPS, the office, modern family, stranger things, crk
       <p align="center">
   <img src="https://github.com/user-attachments/assets/2ba6ebb1-bbe5-471b-b401-0a2aea120926" alt="Sublime's custom image"/>
 
